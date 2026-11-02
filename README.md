@@ -1,0 +1,1 @@
+# xaman-privacy-policy
